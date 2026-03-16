@@ -1,0 +1,1 @@
+# Integrated-Design-Structural-Analysis-of-a-Multi-Storied-Building-in-Pink-City-Raozan
